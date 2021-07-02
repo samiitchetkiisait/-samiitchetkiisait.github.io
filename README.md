@@ -1,1 +1,0 @@
-# -samiitchetkiisait.github.io
